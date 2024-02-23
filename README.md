@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **pritampramanik739@gmail.com**
 
-- ⚡ Fun fact **I think i am the main character🤔**
+- ⚡ Fun fact **I think I am the main character🤔**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
